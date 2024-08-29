@@ -1,5 +1,8 @@
 # x3n0
 
+![image](https://github.com/user-attachments/assets/cb904d71-c36e-4dc8-b70e-6de0523f65fd)
+
+
 ## Однажды в Вегасе
 
 -- Кирилл, купи травы! - говорил голос.
